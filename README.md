@@ -1,2 +1,4 @@
 # LMC-Saga
-Discord Server narrative but it's a github repository
+Discord Server narrative but it's a github repository 💀
+[![Discord server](https://img.shields.io/discord/1233621574700109924?color=7489d5&logo=discord&logoColor=ffffff&style=for-the-badge)](https://discord.gg/Bw9w9XrRfR)
+Server where this lore lwk comes from ^ 🔥
